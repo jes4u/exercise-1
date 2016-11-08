@@ -1,1 +1,1 @@
-Davis is a fag
+MO is a fag
