@@ -1,2 +1,2 @@
-kevin is a fag
+kevin is a weeaboo
 
